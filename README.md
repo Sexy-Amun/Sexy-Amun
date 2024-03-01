@@ -1,5 +1,5 @@
 ## Hi there 👋
-** Sexy  Amun  Is  Cute **
+**Sexy  Amun  Is  Cute**
 
 
 ## Discord
